@@ -1,4 +1,4 @@
-
+Experience anime card clash like never before with anime card clash instant Script, the #1 Script. Includes speed and auto-heal for unbeatable
 
 
 
